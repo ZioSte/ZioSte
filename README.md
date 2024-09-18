@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ZioSte
 - 👀 I’m interested in too much things  
 - 🌱 I’m currently learning developing 
-- 💞️ I’m looking to collaborate..
+- 💞️ I’m looking to collaborate.. everyone 
 - - 📫 How to reach me ... 
 - ⚡ Fun fact: ... enjoy your life  
 
